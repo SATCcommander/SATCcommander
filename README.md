@@ -1,0 +1,1 @@
+taşındı dh ye bak
